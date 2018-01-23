@@ -1,0 +1,1 @@
+RUET Debating Club (RUET DC) is one of the most popular organizations of RUET. The motto of the organization is "Our Debate, Our Dream." Its anniversary is 4 May. Its main purpose is building the culture of debating among students to make them expert in debate, presentation and leadership.
